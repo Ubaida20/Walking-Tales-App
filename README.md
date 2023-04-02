@@ -1,7 +1,7 @@
 ## Walking Tales - Let your step define your Story
 
 ### Video Demo
-YouTube link --> https://youtu.be/WYdUP3eUgu0
+YouTube link --> https://www.youtube.com/watch?v=Lih05wnIy-8
 
 ### Screenshots
 
